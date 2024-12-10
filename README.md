@@ -1,0 +1,2 @@
+# nurdaulet.github.io
+nurda
